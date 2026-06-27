@@ -1,4 +1,4 @@
-## ur mom
+## ur mom (wip)
 
 <p align="centre"><img src="https://ajajajuh.carrd.co/assets/images/image07.png?v=a3fdb641">
 
