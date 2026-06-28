@@ -13,5 +13,8 @@
 <p align="center">$\color{#614457}{\textsf{ art by enilehtnorevol on tumblr
 }}$
 
+
+<p align="center"><img src="https://komarev.com/ghpvc/?username=mankiras&color=614457&style=flat-square&label=victims" />
+
 <p align="center"><img src="https://64.media.tumblr.com/36c32e6cc6d06719d0a8f19a1a72cd7e/24a1316a9dd0c2cc-53/s640x960/4a11c517ae8bd0cc24641fa0ef62aaf18fc9352d.pnj">
 
