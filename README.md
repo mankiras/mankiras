@@ -3,9 +3,9 @@
 
 <p align="center">$\color{#614457}{\textsf{ ˝The universe said I love you, because you are love.˝ 
 }}$
-<p align="center">$\color{#82686f}{\textsf{ May/Mankira   16   she/her }}$
+<p align="center">$\color{#82686f}{\textsf{ May/Mankira   16   she/they }}$
 
-<p align="center">$\color{#82686f}{\textsf{ c+h and w2i unless stated otherwise}}$
+<p align="center">$\color{#82686f}{\textsf{ lesbian, c+h and w2i unless stated otherwise}}$
 
 <p align="center">$\color{#82686f}{\textsf{ basic DNI(for more info check out sp!)}}$
 
