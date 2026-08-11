@@ -1,20 +1,20 @@
-<p align="center"><img src="https://64.media.tumblr.com/801a08572c67f2510c1770886aa6ca16/24a1316a9dd0c2cc-ee/s640x960/2d7c50d8c9f7d6787a3f70c614c694eebb7589eb.pnj">
+<p align="center"><img src="https://64.media.tumblr.com/f54fbe199093c894436602e0b0a26d52/9024f3220afd807e-97/s1280x1920/c1672a30e9433a6b6374c1b5e9c3ee4e507442f8.pnj" />
 
 
-<p align="center">$\color{#614457}{\textsf{ ˝The universe said I love you, because you are love.˝ 
+
+<p align="center">$\color{#532f75}{\textsf{ ˝ Murder was the case that they gave me ˝ 
 }}$
-<p align="center">$\color{#82686f}{\textsf{ May/Mankira   16   she/they }}$
+<p align="center">$\color{#99457e}{\textsf{ May/Mankira   16   she/they Jabber kin!!}}$
 
-<p align="center">$\color{#82686f}{\textsf{ lesbian, c+h and w2i unless stated otherwise}}$
+<p align="center">$\color{#99457e}{\textsf{ lesbian, c+h and w2i unless stated otherwise (PLS INT WITH ME GUYS I SWEAR IM COOL)}}$
 
-<p align="center">$\color{#82686f}{\textsf{ basic DNI(for more info check out sp!)}}$
+<p align="center">$\color{#99457e}{\textsf{ basic DNI(for more info check out sp!)}}$
 
-<p align="center"><img src="https://ajajajuh.carrd.co/assets/images/image07.png?v=a3fdb641">
-<p align="center">$\color{#614457}{\textsf{ art by enilehtnorevol on tumblr
+<p align="center"><img src="https://ajajajuh.carrd.co/assets/images/image12.png?v=591adb1a" />
+<p align="center">$\color{#532f75}{\textsf{ art by 6larosie9 on tumblr
 }}$
 
-
-<p align="center"><img src="https://komarev.com/ghpvc/?username=mankiras&color=614457&style=flat-square&label=victims" />
+<p align="center"><img src="https://komarev.com/ghpvc/?username=mankiras&color=1e6362&style=flat-square&label=victims" />
 
 <p align="center">
  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=3qdgmtgces9wrpq2r6qcytgj9&redirect=true">
@@ -22,5 +22,5 @@
   </a>
 </p>
 
-<p align="center"><img src="https://64.media.tumblr.com/36c32e6cc6d06719d0a8f19a1a72cd7e/24a1316a9dd0c2cc-53/s640x960/4a11c517ae8bd0cc24641fa0ef62aaf18fc9352d.pnj">
+<p align="center"><img src="https://64.media.tumblr.com/0eb1c687d9d3b0449c874ce345273260/9024f3220afd807e-44/s1280x1920/34c7a71a93ac386a107912d85e38d2d8b7137a6b.pnj">
 
